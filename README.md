@@ -27,7 +27,8 @@ GPU：NVIDIA GeForce RTX 4070 Ti Ultra W OC
 💛6.《 [転生王女と天才令嬢の魔法革命](https://tenten-kakumei.com/) 》-迈向花开的未来  
 💛7.《 [Princess Principal](https://pripri-anime.jp/tv/) 》-钢铁雾都下的夜幕恋歌  
 💛8.《 [やがて君になる](http://yagakimi.com/) 》-想从无法喜欢上任何人到喜欢上你  
-# 推荐的术曲？当然有!
+💛9.《 [きみが死ぬまで恋をしたい](https://kimishinu.com/) 》-因为我们还活在当下
+# 推荐的术曲？当然有！
 💛 [YY](https://www.youtube.com/watch?v=TcHvEFxk_78) ——初音ミク/[23.exe](https://twitter.com/23_twt) 「 ***在这短暂的一生也要时常热情满满*** 」  
 💛 [哀の隙間](https://www.youtube.com/watch?v=fztKqreP1pk) ——初音ミク/[MIMI](https://twitter.com/mimi_3mi) 「 ***寻找着向着远方流逝的明天*** 」  
 💛 [銀河録](https://www.youtube.com/watch?v=-l551HSZJzk) ——初音ミク/[はるまきごはん](https://twitter.com/harumaki_gohan) 「 ***我们在宇宙的尽头紧握双手*** 」  
