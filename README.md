@@ -19,14 +19,14 @@ GPU：NVIDIA GeForce RTX 4070 Ti Ultra W OC
 鼠标：HECATE G3Mpro  
 # 作为一位资深白河豚，我最喜欢的的作品是.......
 ~~女孩子贴贴真是太棒了！~~  
-💛1.《 リズと青い鳥 》-Girls,Dance,Staircase   
-💛2.《 ご注文はうさぎですか？ 》-小镇、兔子、咖啡、还有...?  
-💛3.《 Happy Sugar Life 》-扭曲的世界，纯洁的爱  
-💛4.《 白い砂のアクアトープ 》-梦想与现实，孤独与朋友，羁绊与纠结  
-💛5.《 安達としまむら 》-樱开樱落知多少，枕月长眠永相随  
-💛6.《 転生王女と天才令嬢の魔法革命 》-迈向花开的未来  
-💛7.《 Princess Principal 》-钢铁雾都下的夜幕恋歌  
-💛8.《 やがて君になる 》-想从无法喜欢上任何人到喜欢上你  
+💛1.《 [リズと青い鳥](https://liz-bluebird.com/) 》-Girls,Dance,Staircase   
+💛2.《 [ご注文はうさぎですか？](https://gochiusa.com/bloom/) 》-小镇、兔子、咖啡、还有...?  
+💛3.《 [Happy Sugar Life](https://archive.genco.co.jp/happysugarlife/) 》-扭曲的世界，纯洁的爱  
+💛4.《 [白い砂のアクアトープ](https://aquatope-anime.com/) 》-梦想与现实，孤独与朋友，羁绊与纠结  
+💛5.《 [安達としまむら](https://www.tbs.co.jp/anime/adashima/) 》-樱开樱落知多少，枕月长眠永相随  
+💛6.《 [転生王女と天才令嬢の魔法革命](https://tenten-kakumei.com/) 》-迈向花开的未来  
+💛7.《 [Princess Principal](https://pripri-anime.jp/tv/) 》-钢铁雾都下的夜幕恋歌  
+💛8.《 [やがて君になる](http://yagakimi.com/) 》-想从无法喜欢上任何人到喜欢上你  
 # 推荐的术曲？当然有!
 💛 [YY](https://www.youtube.com/watch?v=TcHvEFxk_78) ——初音ミク/[23.exe](https://twitter.com/23_twt) 「 ***在这短暂的一生也要时常热情满满*** 」  
 💛 [哀の隙間](https://www.youtube.com/watch?v=fztKqreP1pk) ——初音ミク/[MIMI](https://twitter.com/mimi_3mi) 「 ***寻找着向着远方流逝的明天*** 」  
